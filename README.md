@@ -1,2 +1,2 @@
-# privacy-policy
-privacy-policy for missed worship
+# musically-privacy-policy
+privacy-policy for nrk müzik çalar 
